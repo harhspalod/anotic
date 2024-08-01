@@ -1,3 +1,5 @@
+https://drive.google.com/file/d/1YlcxpAQapSIV6MgG87nKebX7TJkJhBmN/view?usp=sharing [go throught this before reading this out ]
+
 Krishi Unnati: Enhancing Agriculture with Technology
 Welcome to the "Krishi Unnati" platform, a comprehensive digital solution designed to empower farmers with the tools and information they need to enhance their farming practices using technology. Let's take a closer look at its key features and functionalities.
 
